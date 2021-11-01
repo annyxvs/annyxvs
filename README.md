@@ -1,4 +1,4 @@
-### Hi there 👋
+### Olá 👋🖤
 
 - 🔭 I study
 - 🌱 I’m currently learning front-end
