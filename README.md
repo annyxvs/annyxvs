@@ -1,4 +1,4 @@
-### Oi, eu sou Anny!🖤😊
+### Hi, I'm Anny!🖤😊
 
 - 🔭 I am a student
 - 🌱 I’m currently learning front-end
